@@ -2,4 +2,6 @@
 
 Hope of the ages born into time,
 the word became Jesus Mary's sweet son 
-Saviour divine
+Saviour divine. 
+
+Promise mesiah
